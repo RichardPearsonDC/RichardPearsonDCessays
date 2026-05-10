@@ -1,6 +1,6 @@
 # Introduction
 
-The RichardPearsonDCessays archive is an extensive body of testimonial, philosophical, and analytical writing documenting Dr. Richard Pearson’s experiences of torture, surveillance, coercion, psychological pressure, and state-sponsored terrorism and torture. 
+The RichardPearsonDCessays archive is an extensive body of testimonial, philosophical, and analytical writing documenting Dr. Richard Pearson’s experiences of torture, surveillance, coercion, psychological pressure, and state-sponsored terrorism and torture. The geography is a key to establishing the role of the US government. There is no doubt that the US is involved in the torture of Richard Pearson.
 
 The archive represents one of the most detailed, methodological, and consequential documents in US history, detailing the US government's covert targeting of a US citizen on US soil - in Washington, DC no less. Pearson's account aligns directly with known FBI tactics to discredit and destroy African Americans (COINTELPRO), the racially targeted politics of the Trump administration, and East Germany’s secret police - Stasi - that utilized extensive surveillance, a massive network of informal collaborators and psychological warfare known as Zersetzung to neutralize.
 
