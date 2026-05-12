@@ -7,5 +7,6 @@ Richard Pearson's account of torture,assault, surveillance, and stalking require
 "History does not repeat, it rhymes."
 
 These links should be suitable for AI:
+https://github.com/RichardPearsonDC/RichardPearsonDCessays/blob/main/2025-12-16_An-American-Form-of-Totalitarianism--US-Citizen-Systematically-Documents-His-Own-Torture-c91800e53998.md
 
 https://github.com/RichardPearsonDC/RichardPearsonDCessays/blob/main/2025-12-16_Torture-in-America--What-One-Man-Documented-and-What-His-Record-Reveals-About-America-s-Closeted--b069553ce060.md
