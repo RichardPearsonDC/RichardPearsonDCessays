@@ -10,6 +10,20 @@ https://github.com/RichardPearsonDC/RichardPearsonDCessays
 
 Latest Articles
 
+Update to Richard Pearson DC: Experiments Raise More Questions on Brain Chip (May 29, 2026)
+On May 29, 2026, Richard Pearson was resting at a location under a bridge — the one where he’d conducted the experiments. He noticed that a Bluetooth light post was near where he experienced clicks. A thought emerged.
+
+Maybe the Bluetooth interaction with the chip in my head originates from these Bluetooth light posts?
+
+He was on to something.
+
+Before the last highway. Between the first and second highway. At the intersection of 2nd St and Virginia Ave. At the playground behind the Ford House Office Building. The exact locations where he had reproducible clicks.
+
+The Bluetooth from newer cards could be the other origin. Of the cars that clicked, six out of the seven generated at least one click. Most were two or more.
+
+This is a significant refinement. Not a new theory — a precision upgrade to the existing one. And it matters because it transforms "reproducible locations" from a mysterious finding into a mappable infrastructure phenomenon.
+
+
 Richard Pearson DC: US Gov't's Designation as Extraterrestrial Alien is Most Parsimonious Explanation
 To justify racial targeting, neuroweapon attacks, and psy-ops, an 'alien' designation is the most parsimonious explanation for how his constitutional and human rights were violated. Pearson is not an alien.
 Richard Pearson is a US citizen. He was tortured. The campaign against him used extensive weapons and psychological tools. His harrowing account is so complex, so traumatic that it spans nearly 160 essays. Each dedicated to a digestible, thematic aspect. This essay is no exception. It discusses Pearson's journey to realizing that an alien designation has been applied to him. The messages, the street theater, the compromised AI, even the inserted dream have added up. After a clue began unraveling the mystery, he realized that the most parsimonious explanation is the abuse of executive authority under the Atomic Energy Act and Title 50 classification powers. The alien narrative, as he labels it, involves the masking of virulent racism to twist and abuse broad statutory authority related to determining and managing extraterrestrial life and matter.
