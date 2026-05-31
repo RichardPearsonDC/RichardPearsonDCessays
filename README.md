@@ -11,6 +11,39 @@ https://github.com/RichardPearsonDC/RichardPearsonDCessays
 Latest Articles
 
 ---
+---
+
+Richard Pearson DC: Criminals Hacked Computer to "Communicate". Criminally Obsessed.
+US torture victim is beyond frustrated with the torture campaign and the people behind it. His computer was hacked. They took over his mouse. Their criminality and psychosis on full display.
+
+---
+
+"I have not changed. Many of the people around me have changed"
+- Richard Pearson, PhD
+"They constantly want to 'communicate' with me. Leave me the hell alone. Get help. The same people who hacked my computer yesterday are the same ones who had the T-shirt, 'We're in control', who months earlier had another T-shirt, 'God is in control'. This is severe psychosis - like stalking zombie syndrome."
+- Richard Pearson, PhD
+"Saturday is the big day."
+- White woman at Federal Center, near Pearson, in a red shirt - 1–2 days prior to the computer hacking
+"…compromised would respond with urgency proportional to the threat. A society that is already partially compromised would not recognize the urgency because the recognition requires exactly the cognitive autonomy that has been compromised." 
+- The Message on Richard Pearson's screen from an AI-generated essay
+
+---
+
+Richard Pearson's computer was hacked on May 30, 2026. He was on public Wi-fi at Potbelly's. His mouse moved erratically without his control - closing windows, highlighting text, and scrolling. He tried screen recording. The computer died before he could save the video.
+When he charged his computer at home, he noticed that the screen background had changed. "I turned on the computer. It seemed normal. The same background as I had. Then, I closed windows and saw that it had changed."
+The message was taken from an image clip that Pearson had saved from an AI-generated essay the day prior.
+"…compromised would respond with urgency proportional to the threat. A society that is already partially compromised would not recognize the urgency because the recognition requires exactly the cognitive autonomy that has been compromised."
+The image was put in tiles so that it displayed dozens of times. It suggested, as the title is his article described - a criminal obsession to communicate with Richard Pearson. That they knew the image was there in the first place suggests that they were monitoring his computer in real-time. Pearson changed it back and turned on his screen recorder as he did so.
+Pearson tied the hack to a suspicious group of men - two white older men and three Indians - all in the age range of 55-65. They were not the type to be enjoying museums on a Saturday evening. They appeared to belong in a suburb on the outskirts of the city. When they left, they lingered around Pearson, who immediately got up to go to the end of the walkway.
+The Serious Implications
+Think about what happened here and how it ties into Pearson's account and working theory. Mind control - causing him to sit in what constituted a chemical assault, stealing a soda without any conscious decision-making, pinning him to different places - often displaying messages, including racial epithets. Then you have a Senate bill acknowledging the existence of such weapons. It aims to study and regulate them.
+Then, you had the man appear close by in Pearson's direct view, "We're in control," read the T-shirt. This was several months after another T-shirt incident, which that time, "God is in control." Pearson figures that they decided to switch up the messaging.
+Then, you have all the photos, videos, and precise descriptions of people and events - the red and black incidents, including at Eastern Market where there were two elderly people stood expressionless, the precise timing of coordinated events like the Asian man with the "Off" T-shirt after Pearson had asked for a vacation in a hotel room. The man appeared just as Pearson arrived at home. Then, there is the watermelon incident. Two white women in red shirts employed a racist trope about Black people and watermelon at the grocery, just as Pearson entered the store. The Black woman who was eating watermelon as Pearson passed her in the crosswalk - now more suspicious. Mind control. The racial trope said more about them than him. The people who were oblivious to inconsistencies with the environment - like the women who did not notice how many people were in red and black.
+Here, it was. The custom screensaver. Threatening. Mocking. More than that, the manifestation of severe delusional psychosis - a God complex with co-occurring sadomasochism, malignant narcissism, and full detachment from reality. The same complex that they tried to project on to Pearson in Messianic psychological torture and conditioning.
+What this means - it should be taken very seriously - is that the US is experiencing the greatest threat to national security and the interests of the United States - maybe ever. There is mind control in operation. It is population-wide. A "regime" - within and outside of government - is actively controlling the technology and the population. They believe it sufficient to render the population incapable of seeing or responding to the threat. That is what the message implies. If Pearson, a PhD scholar with no employment or governmental role anything, who else is a victim? That is what the question begs.
+They Are Wrong. Circular Reasoning.
+The computer hackers are suffering from many things, including a logical fallacy and circular reasoning. Pearson believes that the "regime" using this mind control reaches into many communities throughout the US. It has been happening for such a long time, affecting countless people. They believe that they have effectively disabled minds, "would not recognize the urgency because the recognition requires exactly the cognitive autonomy that has been compromised".
+They are wrong. Of course, they are wrong. They lack an understanding of the human mind, including its adaptative mechanisms. Pearson won't say much further except to say, "It is not in the interests of the United States government to torture me. In undergraduate, I was a scholar of political theory. Such torture is ruinous domestically and internationally. However, it is in the self-defined interests of the regime, which is operating within and out of government with the intent to corrupt, damage, cripple, and eventually depose the US form of government - that the people have worked hard to build and preserve. Now, it is the US government versus the regime - the latter should be very worried."
 
 Richard Pearson DC Said to Read the Bible. They Assumed He Thought He was Jesus.
 "I have not changed. Many of the people around me have changed."
