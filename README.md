@@ -11,6 +11,23 @@ https://github.com/RichardPearsonDC/RichardPearsonDCessays
 Latest Articles
 
 ---
+Richard Pearson DC: They Keep Stalking Me, Tracking Me in Real-Time
+
+Richard Pearson DC: They Keep Stalking Me, Tracking Me in Real-Time
+A man who has endured a year of unimaginable torture is still being stalked. "It's like they have stalking zombie syndrome."
+"Something is severely wrong with these people. Stalking me constantly. This is just one aspect of what they do. They look at me. Look in the direction that I am looking, as if I am looking at something. It's a tree!"
+- Richard Pearson
+Richard Pearson is being stalked, on top of the horrific scale of violence that has been leveled at him in the last year - a physical assault, a chemical assault, cognitive assaults ("pinning", voice insertion, dream insertion), electrocution to his penis, a false arrest (a manufactured witness used against him), illegal and extensive home and privacy surveillance and invasion, psychological torture, computer hacking, sleep deprivation, verbal abuse, property destruction, gangstalking, illegal property seizure, and harassment.
+He describes the evening of Sunday, May 31, 2026.
+"I avoid people. After all that I have been through, it is the most rational choice that I can make. I am not angry or anti-social, but I am tired of being assaulted. It's been a year of torture - the most comprehensive individual account of torture in the history of the United States. That is how awful it has been.
+I was in the park space in front of my local library. It was late evening. There were many passersby at first. Most were fine. I suspected a few might have been up to no good, but one individual was definitely up to no good - stalking. It's late. The number of people have dropped off - fewer and fewer people passing by.
+A young white boy - early 20s - is headed in my direction. I have never seen him before in the neighborhood. He does not fit in - not in the night time, not in the daytime. Young white people like him tend to be in a group of at least two - usually leaving a sports game. Two national sports stadiums are nearby. Either that or they are on a rental electric shooter or bike. Almost certainly, they are not casually not walking at 11pm at night. It's highly unusual. He's carrying something in a white bag - grey hooded sweatshirt, a brown curly top on which the hood is resting. He sees me. I could tell that he is headed in my direction. I point right basically saying, "Go that way."
+"This is one of them." I spotted it as soon as he got in front of the playground. He is looking in the same direction where I am looking. He stops. He looks around, then walks slowly, still with his head turning as if he is looking for something - the whatever that he thinks that I am looking at. He heads towards the intersection, then makes a left. If that was his intentional direction, then he journeyed the longest way possible. There was a street from his original location to the direction that he was headed - Wesley Place. I eventually leave.
+I find a grassy area next to my apartment building. I sprawl out - face the trees. Within 10 minutes, I see another white male - overweight and in his 30s - headed toward me. I am facing the intersection, from where he emerges. He is headed down the sidewalk next to me. He performs the same actions as the prior man. He looks at me, looks in the precise direction where I am looking, and looks around as if trying to find something.
+There are trees and darkness. I am trying to escape from this stalking. This is my happy place and he's trying to ruin it.
+I don't know the precise nature of this stalking, but I only see people who are acting cruel - like a stalking zombie syndrome. I have been tortured for the last year in the United States of America. In Washington, DC. And I am a US citizen. It's like there is no moral grounding whatsoever.
+Then, there is a car that pulls into the accidental parking space in front of the driveway of my building. The gate is broken, so no cars are expected to pass through. Within 10 or so after minutes after my arrival, it sits there. Lights are beaming right in my eyes. I rotate toward the building and sky. I ignore the lights. Periodically, I would check to see if it has left. Nope. It stayed there for nearly an hour. People don't do that. They don't just linger like that. This is part of the campaign of torture - it continues.
+
 ---
 
 Richard Pearson DC: Criminals Hacked Computer to "Communicate". Criminally Obsessed.
