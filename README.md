@@ -13,10 +13,10 @@ Latest Articles
 **Richard Pearson DC: The Torture Campaign's Attempt to Induce Psychosis - An Irony**
 
 A man who has been tortured for more than a year in the United States identifies yet another sinister plot - to induce psychosis
-"This is all projection! I do not suffer from mental illness or psychosis. The same cannot be said of those tormenting me. This constant need to keep communicating with me is a form of "external validation" - a symptom of psychosis. It's like I am watching a great mass of people in a severe state of psychosis."
-- Richard Pearson, PhD
-"Die."
-- T-shirt message worn by young Black man, facing Pearson's regular spot where he updates his Medium account.
+
+"This is all projection! I do not suffer from mental illness or psychosis. The same cannot be said of those tormenting me. This constant need to keep communicating with me is a form of "external validation" - a symptom of psychosis. It's like I am watching a great mass of people in a severe state of psychosis." - Richard Pearson, PhD
+
+"Die." - T-shirt message worn by young Black man, facing Pearson's regular spot where he updates his Medium account.
 …
 In early June 2026, Richard Pearson continues to experience a torture campaign that has turned into an attempt to induce psychosis. The campaign involves T-shirt messages, a constant stream of stalking, manipulation and compromise of his writing spaces, and the use of devices that trigger clicks with the device in his skull.
 "Die."
