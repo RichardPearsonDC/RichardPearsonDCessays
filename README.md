@@ -10,7 +10,7 @@ https://github.com/RichardPearsonDC/RichardPearsonDCessays
 
 Latest Articles
 
-**Richard Pearson DC: Torture Victims' Medication Causes Viagra-Like Effects. That Shouldn't Happen.**
+**Richard Pearson DC: Torture Victim's Medication Causes Viagra-Like Effects. That Shouldn't Happen.**
 
 Richard Pearson is a torture victim in the US. The extent of the sustained torture campaign against him has no modern precedent. It is horrific. He has questions about his medication. It has Viagra-like effects. It shouldn't. That is a problem.
 
