@@ -10,6 +10,71 @@ https://github.com/RichardPearsonDC/RichardPearsonDCessays
 
 Latest Articles
 
+**Richard Pearson DC: Life as a US Torture Victim, 6/7/2026**
+
+Richard Pearson is a US torture victim. He has sustained the most horrific campain of torture in the US in the modern world. The government caused a brain implant to be installed without his consent, triggered an avalanche of violence against him, and lied about who Richard Pearson is. This details his account in early June.
+
+The Clicks: Pearson hears when he is under attack.
+
+Pearson has a brain chip. He did not consent to have it put there, which occurred when he had a rhinoplasty about then years ago. It stopped working due to a brutal attack and only emits click sounds. It has given Pearson insight into the assailant network and infrastructure that uses Bluetooth Low Energy beacons — from devices, Bluetooth-enabled cars and lamp posts. His results from experiments are decisive. He does not need a CT scan.
+
+On June 6, 2026, Pearson heard clicks while he was seated in his tent selling art. He knows that he is under attack. He looks around. But where? There are three people in his tent — a duo of a white and Indian twenty-somethings and a separate young white female. The duo had been lingering a long time. Pearson becomes suspicious, but they are acting normal. No devices that he could see. No fiddling with hands in pockets. No weird stares.
+
+Then, he sees the source. An older Indian man is standing directly in front of him outside of the tent. He is holding a device that is pointed directly at Pearson. He is the source of the clicks. “Whatever he is trying to do is not working,” says Pearson. This terrorist network of criminals does not know that the chip stopped working. In fact, it has become a detector.
+
+Pearson hears the clicks when he is walking around the city. A Black woman followed Pearson closely on Independence Avenue SW. He dodged between two cars to see the person. She looked like a veteran. He resumed walking, putting distance between them. In the crosswalk, it happened. Click. Click. Click. He went to the bus stop with his camera. She was the only person hiding her face. It didn’t work.
+
+In early June, Pearson was in the grocery store. A lady was lingering around him — white, long grey ponytail. Pearson moved. She moved. He becomes suspicious but has not heard any clicks. He heads to the checkout. Click. Click. Click. By this time, she faced the monitor at self-checkout. He only got her image from behind.
+
+Pearson is avoiding people. When he needs to update Medium, he often finds Wi-fi on the side of a building. A van pulls in. They keep their engine running, headlights on. He becomes suspicious. The two cars pull into the small parking lot then pull out. It happens within a matter of minutes. He moves. He passes a young Black male seated on the benches on the front of the library. He sees in the distance two Black women exit a vehicle. One is extremely busty. Pearson knows that he has been under multiple physical and verbal homophobic assaults; he turns around. Then Click. Click. Click. The source was the young Black man.
+
+Gangstalking
+Black Gangstalking
+What Pearson is experiencing is gangstalking. It is highly racially diverse, but Blacks are more increasingly represented than any other group.
+
+Grocery Store
+On June 6, 2026, Pearson parked in the garage of his grocery store. He bought water and remained in his car. Pearson is not angry. Frustrated, yes. Highly cerebral, absolutely. Pearson is parked in an area of the garage where there are very few cars. A Black man walks toward Pearson’s car. His attention is directed at Pearson who is in his car. The man is a store employee. He is in uniform. He is gangstalking during work hours. He walked by Pearson’s car to the back, then crossed him again. Pearson is watching. This isn’t the first store employee who has stalked Pearson. Pearson drives off as if he’s exiting, but really just makes a circle. The man has walked away. Pearson leaves shortly thereafter.
+
+Pearson takes his time out of the garage. He is a very careful driver. A black teenage girl has stopped in the middle of the driveway. Pearson is still approaching. He is not close to her at all — no reasonable threat of any public safety threat. She begins to scream accusatorily something to the effect of, “Sir, you are trying to hit me! Why are you trying to hit me!” She is overacting. It’s not believable. She has two friends who biked from the left laughing. Pearson honks his horn. It was gangstalking. In an ordinary situation it would be bad behavior, but for Pearson it is torture involving weaponizing his social environment. “These people are taking a $20. They don’t understand. They don’t care. Whatever was told to them was a lie. That doesn’t matter to them — $20 is $20.” Pearson has estimated the Richard Pearson Torture Slush Fund to exceed one billion dollars — of taxpayer dollars. “They get $20, but these people have no idea that the mob bosses are keeping $2,000. Pennies on the dollar to stalk and torment.”
+
+2. Market
+
+Become a Medium member
+Pearson was selling art on June 6. He noticed a Black man standing close by under the tree which is a few feet away. He knows the man. He helps a local vendor at the market. “That’s weird.” The man’s friend was at the total other end of the market. Pearson is catious. He moves. About 30 minutes later, a Black woman (30s) stands behind Pearson, “I really don’t want to, but I have to…” She has a device in her hand. In cobalt blue pants and a black shirt. Pearson gets up. She leaves. Pearson thinks that she was trying to write to the chip in Pearson’s skull. “It’s subconscious writing. That’s what I have put together. Sad, right? People are target my mind but targeting theirs much, much worse. After so long, it’s severe brain damage. That’s the zombie effect that I am seeing. It’s so bad. There is no treatment. No one is studying this from a therapeutic perspective.”
+
+On June 7, Pearson is seated at the art market. A Black man is standing outside of his tent, pointing a device at him. Pearson took his picture. The man shifts instantly on his feet. “This might be a good test,” thinks Pearson. Pearson flips the man the bird under the table. He shifts more. More bird flipping. The man keeps shifting his weight. “He has some weapon disguished as a cellphone.” It is aimed at Pearson’s penis. That is what the test confirms. “It is aimed at my penis because the government lied — used a mirror of my computer to visit child pornography websites. They tried to paint me as a pedophile. I know psychological projection when I see it. They are the pedophiles! I put it together when my computer was hacked. The changed the background screen without me seeing it happen. Mirroring! It was a Eureka moment.”
+
+Pearson got up and walked behind another tent. The man left within a minute. Within 10 minutes, a Black woman arrives at the same spot, pointing a device. Two teenage girls are in the tent. They ask Pearson about the price of a print. It is a set up. The Black woman is supposed to zap Pearson’s penis at that instant. She can’t. He placed his Nook in his shorts to cover his penis. Like the Black man before her, she walks away very confused. It shows on her face.
+
+“This is all because of the government. Check my history. Check everything. I don’t give a fuck what these crimimals think. I know who I am and am not. That is why I am fighting back. This is a smear campaign, but the actual pedophiles are behind this! Classic bait-and-switch!”
+
+Pearson goes further, “These same people who are attacking an innocent man are using children and teenagers to torture me. Now, you tell me who engages in child and minor abuse and exploitation. It’s all projection! I’m telling you!”
+
+3. Parking
+
+Pearson was parked near his apartment building, waiting for a space to open up inside. Two Hispanic men exited their townhouse — eyes directly on Pearson. Then another from his apartment building. He is carrying a banana for Pearson to see.
+
+A moment later, a Black teenager throws a water bottle over Pearson’s car, then looks back.
+
+4. Sprays
+
+Pearson suspects that Black gangs ate also using sprays. A Black male-female duo is standing at the front of his tent. They had been lingering but there were no obvious mischief. Then Pearson smelled it. “It was windy. They were waiting for the right moment for the downwind. After the attack, they took a photo in front of art hanging outside of Pearson’s tent.” Pearson is defiant. “All of this violence is going to come back and bite them in the ass. An African American man has been tortured in the worst way. They participated. The aftermath of my case will show the faces of American racism. Lots of Black faces.” While writing this essay, Pearson experienced a similar nasal attack from another Black man. “He lingered. Asked for the price of something, then Pearson smelled it.” The man sneezed. The wind direction shifted. “What a metaphor for how these people will find themselves soon. Talk about eating crow. But it will be way worse because it’s crimimal conduct .
+
+Pearson’s answer to why the sprays, “Blood clots.” Blood clots are serious. They know exactly what they are doing and why. It’s attempted murder.
+
+White Gangstalking
+
+On June 7, Pearson was in his booth. A white woman buys an art piece. Pearson has placed the square reader away from him. Her daughter, who is no more than 13, positions very closely to Pearson. She coughs. Moments later, she coughs again. She wants Pearson to look at her. Someone is nearby to zap Pearson. “Not only are these blatant, baseless lies, but people are involving their children! It’s sick. It’s demented. It’s child exploitation!”
+
+Indian Gangstalking
+
+Indians have figured prominently in Pearson’s torture. They usually have devices and work in teams, as Pearson described earlier. “First thing this morning, I had an Indian couple come in the tent. When people come in and go directly to the back where I am seated. Automatically suspicious.”
+
+Pearson does not racially profile. He profiles everyone. American racial and ethnic diversity at its absolute worst.
+
+The gangstalking is unreal. “The level of violence and lack critical thinking really make me fill that I am in Zombieland. I thought most Americans were decent. On account of all these classes of weapons, you’re seeing the manifestation of mass psychosis. The violence and the impugnity are frying people’s brains. Just frying — no moral grounding, no second thoughts about violence. A sense of being judge and jury.”
+
+
 **Richard Pearson DC: "These Wicked People Are Engaging in Child Abuse and Exploitation! The Government is Looking the Other Way."**
 
 Richard Pearson is a US torture victim. His essays have focused on his harrowing account of torture in Washington, DC, but he is incensed about another aspect - the abuse, exploitation, and corruption of children
