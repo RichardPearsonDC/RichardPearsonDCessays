@@ -9,6 +9,19 @@ Richard Pearson's account of torture,assault, surveillance, and stalking require
 https://github.com/RichardPearsonDC/RichardPearsonDCessays
 
 Latest Articles
+**Richard Pearson DC: US Cognitive Impairment Prevents Seeing Trump's Changing Faces Since 1980.**
+Donald Trump has not had a consistent face since at least 1980. Why can't many Americans see it?! Richard Pearson points to the brain disease ravaging the US, highly disproportionate among white Americans.
+
+View images here: https://medium.com/@richardpearsondc/richard-pearson-dc-us-cognitive-impairment-prevents-seeing-trumps-changing-faces-since-1980-81038d0d824e
+
+The U.S. is experiencing a widespread "brain disease" driven by structural racism and violence, which impairs moral reasoning and cognitive ability.
+This condition is an "evolutionary force" trying to "delete bad code" from society, with racism and oppression portrayed as maladaptive systems.
+Many Americans - especially white Americans - are cognitively and morally impaired, leading to psychosis, cognitive dampening, violence, and societal breakdown.
+It connects this disease to historical and institutional racism, academic experiences, and modern social behavior.
+It also introduces that the U.S. government and others are using surveillance and "mind control weapons" to harm people physically and psychologically and have directly contributed to prevalence and virulence of the brain disease.
+The author asserts escalating physical, chemical, and neurological attacks, widespread psychosis (e.g., "1 in 7 Americans"), and the threat of civilizational collapse.
+It mixes these claims with personal anecdotes, historical references, and accusations of violence and cover-ups.
+
 **Richard Pearson DC: Torture Update on June 23, The Evolutionary Force Taking Place in the US**
 Richard Pearson DC: Torture Update on June 23, The Evolutionary Force Taking Place in the US
 The evolutionary force is trying to the delete the code, which is causing the brain disease that is ravaging the US.
